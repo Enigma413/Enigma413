@@ -10,3 +10,5 @@
 # I'm interested in Homestuck, Invader Zim, Postal, Date Everything, Steven Universe, and Eddsworld!
 
 ![Bee whimsical](https://github.com/Enigma413/Enigma413/blob/main/IMG_0195.png)
+![I love Frutiger aesthetic](https://github.com/Enigma413/Enigma413/blob/main/IMG_0196.png)
+![Hoohoohoo](
