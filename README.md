@@ -7,7 +7,7 @@
 
 ![I love Wayward Vagabond](https://github.com/Enigma413/Enigma413/blob/main/IMG_0189.gif)
 
-# I'm interested in Homestuck, Invader Zim, Postal, Date Everything, Eddsworld,Yolo Crystal Fantasy,No I’m not a human and lastly I'm also getting into Metalocalypse and Xavier renegade angel!!
+# I'm interested in Homestuck, Invader Zim, Postal, Date Everything, Eddsworld, Yolo Crystal Fantasy, No I’m not a human and lastly I'm also getting into Metalocalypse and Xavier renegade angel!!
 
 ![Bee whimsical](https://github.com/Enigma413/Enigma413/blob/main/IMG_0195.png)
 ![I love Frutiger aesthetic](https://github.com/Enigma413/Enigma413/blob/main/IMG_0196.png)
