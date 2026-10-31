@@ -7,7 +7,7 @@
 
 ![I love Wayward Vagabond](https://github.com/Enigma413/Enigma413/blob/main/IMG_0189.gif)
 
-# I'm interested!! in Team fortress two, No I’m not a human, Postal redux 1997, For You Satan, Fact Attack Adventures, Metalocalypse, Aqua teen hunger force, Homestuck, and more!! 
+# Heya!!! 🥹🥹 I’m interested in Postal, Metalocalypse, Homestuck, Aqua Teen Hunger Force, No i’m not a human, Steven Universe, Xavier Renegade Angel, And lastly I’m getting into The Venture Bros i have more fandoms I’m into but I’m too lazy to name them 👀👀
 ![Bee whimsical](https://github.com/Enigma413/Enigma413/blob/main/IMG_0195.png)
 ![I love Frutiger aesthetic](https://github.com/Enigma413/Enigma413/blob/main/IMG_0196.png)
 ![Hoohoohoo](https://github.com/Enigma413/Enigma413/blob/main/IMG_0197.png)
